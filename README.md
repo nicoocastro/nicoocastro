@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hola 👋, soy Nicolás
 
 Un estudiante más de sistemas
 
